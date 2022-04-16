@@ -1,4 +1,4 @@
-- Sup I am DepressoMocha
+- Sup, I am DepressoMocha
 - TQ Supremacy
 - https://depressomocha.carrd.co/ 
 
